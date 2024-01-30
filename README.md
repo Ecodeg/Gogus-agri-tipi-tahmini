@@ -1,0 +1,1 @@
+# Gogus-agri-tipi-tahmini
